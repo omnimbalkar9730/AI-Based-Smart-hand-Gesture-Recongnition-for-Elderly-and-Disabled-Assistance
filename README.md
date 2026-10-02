@@ -1,0 +1,1 @@
+# AI-Based-Smart-hand-Gesture-Recongnition-for-Elderly-and-Disabled-Assistance
